@@ -11,4 +11,4 @@ Author: Prat and Danny
 -1/2 ounce of Parmesan cheese
 -ground pepper
 
-Cook them
+Cook them al dente 
